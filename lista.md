@@ -1,0 +1,8 @@
+\# Lista de lectura Para Leer 2026
+
+
+
+1\. Cien años de seriedad — Gabriel García Márquez
+
+2\. Rayuela — Julio Cortázar
+

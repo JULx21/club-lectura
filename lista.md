@@ -2,7 +2,7 @@
 
 
 
-1\. Cien años de seriedad — Gabriel García Márquez
+1\. Cien años de soledad — Gabriel García Márquez ★★★★★
 
 2\. Rayuela — Julio Cortázar
 
